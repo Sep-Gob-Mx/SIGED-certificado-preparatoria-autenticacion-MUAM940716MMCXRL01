@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-MUAM940716MMCXRL01
+MUAM940716MMCXRL01
